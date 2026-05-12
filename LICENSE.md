@@ -1,4 +1,4 @@
-#  
+#  Experience hypershot like never before with hypershot top Scripts, the #1 Script. Includes auto-sell and speed for unbeatable performance.
 
 
 
